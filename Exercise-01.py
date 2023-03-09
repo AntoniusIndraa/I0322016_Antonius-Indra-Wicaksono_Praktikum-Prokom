@@ -11,13 +11,13 @@ dengan NIM I0322016. Saya berasal dari Gunungan, Canan,
 Wedi, Klaten dan saat ini berdomisili di Karanganyar. 
 Karanganyar merupakan daerah yang cukup ramai, karena 
 di tempat saya tinggal dekat dengan sekolah, dari SD 
-hinggan SMA. Selain itu di tempat tinggal saya berada
+hingga SMA. Selain itu di tempat tinggal saya berada
 disamping bimbel sehingga cukup ramai. Rumah yang saya 
 tinggali berada sekitar 2km dari alun-alun karanganyar.  
     Aslinya saya berasal dari Klaten, tepatnya dari 
 Gunungan, Canan, Wedi, Klaten. Di kampung halaman saya 
 masih terdapat banyak sawah. Ketika keluar rumah dan 
-berjalan sebentar, akan terlihat hamparan sawah yang 
+berjalan sebentar akan terlihat hamparan sawah yang 
 cukup luas. Di kampung halaman saya terasa sunyi dan 
 tidak terlalu ramai karena lumayan jauh dari pusat kota. 
 Di daerah saya masih ada bangunan yang bermodel lama 
